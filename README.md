@@ -1,5 +1,5 @@
-本页面为芒果ios永久收藏页，请保存  
-永久收藏页：https://github.com/haokandesp/mgsp  
+本页面为芒果ios永久收藏页，请收藏！ 请收藏！ 请收藏！  
+永久收藏页地址：https://github.com/haokandesp/mgsp  
 
 
 最新地址: http://mg.kidstrain.cn    
