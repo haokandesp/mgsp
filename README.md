@@ -2,8 +2,8 @@
 永久收藏页：https://github.com/haokandesp/mgsp  
 
 
-网页最新地址:http://mg.kidstrain.cn    
-网页老地址:http://h5.91weiyun.cn (随时会被和谐)    
+最新地址: http://mg.kidstrain.cn    
+老地址: http://h5.91weiyun.cn (随时会被和谐)    
 客服地址：http://43.248.134.102:92/index/index/home?business_id=5&groupid=0&special=5&theme=05202d  
 
 迁移新地址办法：    
